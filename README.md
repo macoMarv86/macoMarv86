@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @macoMarv86
-- im currently interested in any type or collaboration efforts to better help me undertand how i may be of service 
-- you can reach me at elnica02@hotmail.com  big thank you to everybody 
-- M>user created repository hello-world-readme-edit feature-merger-main
+- 👋 Hi, I’m @macoMarv86_@fb-"sometimes just to live is an act of courage-!"
